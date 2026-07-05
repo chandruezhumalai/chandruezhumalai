@@ -30,7 +30,7 @@
 ## 📫 Connect with Me
 
 * 📧 Email: **[chandruezhumalai0503@gmail.com](mailto:chandruezhumalai0503@gmail.com)**
-* 📱 Phone: **+91 99446 37030 & 8220637030**
+* 📱 Phone: **+91 8220637030 & +91 9944637030**
 * 💻 GitHub: **github.com/chandruezhumalai**
 
 
